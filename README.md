@@ -2,6 +2,8 @@
 
 If you're a Coin Master fan, you're probably always on the lookout for ways to maximize your rewards, level up faster, and unlock all the exciting features the game has to offer. Well, look no further! We've got a special treat for you — a **Coin Master Free 400 Spin Link** available for November 2024, exclusively in the US. Yes, you heard it right — **400 free spins** to help boost your game, and all you need to do is claim the offer.
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 But before we dive into how you can claim these free spins, let's break down what Coin Master is, why free spins are so important, and how you can benefit from this limited-time offer. So sit tight, and let's get you those spins!
 
 ## What is Coin Master?
